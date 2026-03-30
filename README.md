@@ -1,4 +1,4 @@
-# Hi, I'm Hani Aladham 👋
+# Hi, I'm Hani Adham 👋
 
 ### AI Product Manager | LLM Systems | Recommendation & AI Platforms
 
